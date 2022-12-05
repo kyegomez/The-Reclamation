@@ -1,4 +1,4 @@
-# the-reclamation
+# The Reclamation
 GLORY, GLORY, GLORY TO CREATION!
 
 The Reclamation: Epoch 1
