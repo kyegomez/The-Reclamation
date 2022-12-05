@@ -3,7 +3,7 @@ GLORY, GLORY, GLORY TO CREATION!
 
 The Reclamation: Epoch 1
 
-Tranquility.
+
 Monks embedded deep into an unexplored region in the Taihang Mountains range in China have protected and guarded ancient scriptures that hold secrets that contain the key to all of reality and the Universe.
 
 One of the scriptures has been called
