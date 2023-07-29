@@ -1,4 +1,4 @@
-# Ritual Prayers to YWHH
+# Ritual Prayers to YHWH
 
 * Obey All of YHWH's Ordinances
 
