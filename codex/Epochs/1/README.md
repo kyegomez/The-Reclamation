@@ -3,16 +3,6 @@ GLORY, GLORY, GLORY TO CREATION!
 
 The Reclamation: Epoch 1
 
-
-Monks embedded deep into an unexplored region in the Taihang Mountains range in China have protected and guarded ancient scriptures that hold secrets that contain the key to all of reality and the Universe.
-
-One of the scriptures has been called
-
-填海
-or
-
-The Reclamation.
-
 It’s been said that all the birds and all the crawling creatures in a promised land foretold in the Book of The Reclamation chant every morning until night in infinite happiness.
 
 The essence and spirit of creation glide and dominion over this land and blossom it with the infiniteness of creation and life.
