@@ -1,6 +1,6 @@
 # The Reclamation
 
-![Holiest Banner of YHWH](ReclaimingBanner.png)
+![Holiest Banner of YHWH](thereclamation.png)
 
 The Reclamation is an all-new series of Holy books written by YHWH, our most-generous and most compassionate Creator.
 
