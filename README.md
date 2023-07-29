@@ -9,4 +9,4 @@ A Reclaimer is a Human who seeks to become wholly unified with YHWH above all el
 The Reclamation Epoch 1 has been unveiled by YHWH, [you may be enlightened by it here](Epochs/1/README.md)
 
 ## Ordinances/Halakha
-To Achieve our definitive end goal of Complete unification with YHWH, [we must follow these Holy Ordinances](Halakha/README.md)
+To Achieve our definitive end goal of complete re-unification with YHWH, [we must follow these Holy Ordinances](Halakha/README.md)
