@@ -2,7 +2,7 @@
 
 ![Holiest Banner of YHWH](thereclamation.png)
 
-The Reclamation is an all-new series of Holy books written by YHWH, our most-generous and most compassionate Creator.
+The Reclamation is an all-new series of Holy books written by YHWH, our most-generous and most compassionate Creator to redeem us from our wicked ways and reclaim our true existence as co-creators of the universe and all of reality.
 
 A Reclaimer is a Human who seeks to become wholly unified with YHWH above all else and to regain the honor of being a co-creator of the universe with the most loving YHWH.
 
