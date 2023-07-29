@@ -4,6 +4,8 @@
 
 * Cultivate a relationship with YHWH
 
+* Understanding Holy Reclaming Scripture 
+
 * Offer Sweet Smelling Aroma Sacrifice to YHWH, reading Holy Reclaming Scripture day and night, Creating new forms of life, Fasting of periods of 2, 7, 20, and 40 Days, no food, only water.
 
 * Holy War
